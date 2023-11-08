@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @JackieO94
+- 👀 I’m interested in the codes.
+- 🌱 I’m currently learning how to code!
